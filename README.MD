@@ -1,1 +1,1 @@
-
+Our website Menu Scout aims to allow everyday people to towards a healthy lifestyle. Our product makes healthy eating easily accessible & affordable to people from all walks of life. Our purpose for developing this product is to make choosing the healthy option when eating out at restaurants simple and easy with just a quick web search. Consumers can compare menu item’s and their nutritional values in the time it takes you to be seated at a restaurant. Menu Scout aims to help consumers make healthy decisions every day regarding their food choices. 
